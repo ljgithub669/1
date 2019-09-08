@@ -15,6 +15,8 @@
 
 ![](http://ww1.sinaimg.cn/large/006YKa8tly1g6c5339yvkj31150g9wju.jpg)
 
+![荣誉_16.jpg](http://ww1.sinaimg.cn/large/006YKa8tly1g6s3n652llj31go11k76h.jpg)
+
 ![](http://ww1.sinaimg.cn/large/006YKa8tly1g6c57qekmcj30mu0h5x56.jpg)
 
 ## 29届星火杯（2017.12）
